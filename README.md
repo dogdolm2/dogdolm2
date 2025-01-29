@@ -1,4 +1,4 @@
-## ☭☭SOME VERY, !VERY! IMPOARTANT STUFF☭☭
+## ☭☭SOME VERY, !VERY! IMPORTANT STUFF☭☭
 Contact me ***ONLY in Russian***, the ultimate language of the world and the whole earth.
 ## CONTACT OPTIONS
 Also you can mail me to aavolyntsev@edu.hse.ru<br>
