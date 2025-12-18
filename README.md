@@ -1,5 +1,5 @@
 ## ☭☭SOME VERY, !VERY! IMPORTANT STUFF☭☭
-Contact me ***ONLY in Russian***, the ultimate language of the world and the whole earth.
+Contact me ***ONLY in Russian***, the ultimate language of the world and the whole universe.
 ## CONTACT OPTIONS
 Also you can mail me to aavolyntsev@edu.hse.ru<br>
 With something important or urgent, contact me on +79259449054 by SBP to Asian-Pacific Bank.<br>
